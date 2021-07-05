@@ -44,7 +44,7 @@ we will give you an optional 1 hour GitHub tutorial:
 * Victoria / 
 * Kate S / 
 * Lisa S (she/her)/ 
-* Bobby / 
+* Bobby / spending the weekend in the countryside 🌳
 * Evdokia / 
 * Greg / 
 * Jess / 
